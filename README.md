@@ -47,7 +47,7 @@
 
 上传日期：2017-11-28
 
-[https://mp.weixin.qq.com/s?src=11&timestamp=1675417909&ver=4328&signature=VaiApYeNPUh7a86UP48yx2FRA2CftoXa9XnWSjxL7BF0t8AYoGbD8eC8-k7QgAsSkdbISt17cMh6XP7rOFpaKQsZLdHL12MhIU3D4-mEDX5EEiUCQr-eBlt2CWSjNRyH&new=1](https://mp.weixin.qq.com/s?src=11&timestamp=1675417909&ver=4328&signature=VaiApYeNPUh7a86UP48yx2FRA2CftoXa9XnWSjxL7BF0t8AYoGbD8eC8-k7QgAsSkdbISt17cMh6XP7rOFpaKQsZLdHL12MhIU3D4-mEDX5EEiUCQr-eBlt2CWSjNRyH&new=1)
+[https://mp.weixin.qq.com/s/gkoW9fC180gF1IJWijUWRw](https://mp.weixin.qq.com/s/gkoW9fC180gF1IJWijUWRw)
 
 #### 5月29日中国新歌声东莞赛区半决赛邀你一起畅游龙凤山庄影视度假村
 
@@ -63,7 +63,7 @@
 
 上传日期：2018-05-31
 
-[https://mp.weixin.qq.com/s?src=11&timestamp=1675417953&ver=4328&signature=vo5tV3N7wIUFCInPBD](https://mp.weixin.qq.com/s?src=11&timestamp=1675417953&ver=4328&signature=vo5tV3N7wIUFCInPBD)*cJHBoUMG4OhlWjMAM7Tyn9RAUOquWGwcDsWXcgXHcy-G8wVgmNLf4pVxz1PvreG-hB8f7atP9XLBv8VpYJ3Zm72ALpyk*PlLDdS9L0DujuWZj&new=1
+[https://mp.weixin.qq.com/s/KYc5siNpdDk59uRGbzmPow](https://mp.weixin.qq.com/s/KYc5siNpdDk59uRGbzmPow)
 
 #### 喜报〡就是这么牛，我校9名选手问鼎“中国新歌声”广东省总决赛！
 
@@ -79,7 +79,7 @@
 
 上传日期：2018-06-17
 
-[https://mp.weixin.qq.com/s?src=11&timestamp=1675418010&ver=4328&signature=XnABPJSXD60w1wHXPeKrFTwE0bVQ9GIwyTkQmBwTQyKP2JyQuVZa](https://mp.weixin.qq.com/s?src=11&timestamp=1675418010&ver=4328&signature=XnABPJSXD60w1wHXPeKrFTwE0bVQ9GIwyTkQmBwTQyKP2JyQuVZa)*-2qG6wreF69RvYRMGQ1ch9RTJgHCS4n2HGqjTatsl9QUB*7Oh-06CXn4Dfh*8uR0KyLekRMjyuq&new=1
+[https://mp.weixin.qq.com/s/9px7nizdibaDzTcsicXCvQ](https://mp.weixin.qq.com/s/9px7nizdibaDzTcsicXCvQ)
 
 #### 【资格赛回顾】对面的学员看过来，这是你的舞台
 
@@ -87,7 +87,7 @@
 
 上传日期：2018-06-28
 
-[https://mp.weixin.qq.com/s?search_click_id=4695434153892792770-1675301309289-4496286510&__biz=MzIxMjcxMTA4NQ==&mid=2247484095&idx=1&sn=443efb4f9abbbcdad1e227f67e30952a&chksm=9740a17da037286b03cbf93d11374bbfe82da9a37ce92d8205929f3b0412334d789ec4507dfc&scene=7&key=f1763763d6239e2965797e73cfd101dc7ec423ebe07a0374c000861e1a3382bb76c56633ae6869d655854c025940b7537751bc13072a891aa30b99f364797c91c65156ba4a2d384bc39fb473a0f3ea98817ec60df6ff059d21b6ec80c09e5e51e9e09ad5dcfb1d51eeba49b706afcd2b0823b663dbfc05bdb058072d4d6d7c66&ascene=65&uin=MjUwMTM2MTIwOQ%3D%3D&devicetype=Windows+10+x64&version=6308011a&lang=zh_CN&exportkey=n_ChQIAhIQOT69viY4p6zcwvuD3T%2B77BLgAQIE97dBBAEAAAAAAFZlFjAzP8sAAAAOpnltbLcz9gKNyK89dVj0ib0lLcTrL003mN8I67YgpumkJ4K0OveUdzJIomUjRRA9%2FMKYdCoY6Z%2B%2FvLqRysPvwMUciGteRncLQtqeHC%2BncjouNiFVsRqfM9VABgPtpXjk0SP1Pp8TBXs8owJH%2FIw5SVMYb%2B2xUmvgaFXvHOTFGHcH2Xn0nXvNjDacni6LBqIIPBEUBx7zyFUP4eaAoB3TmD9%2BVDHgZXUojG0QqZG2qiTEpJDTd8%2FZwAiWU6%2Bk1l2fEBRbNq%2BQyMMI&acctmode=0&pass_ticket=%2BtzZ3JOyi79iJQHnWBb%2FrrepYIZkUclt%2B70%2FSG3dT%2BTwPJ3U1HlkWVl1xK56m4qfJgJr8%2FPAkSUjGK%2BgLwdfZw%3D%3D&wx_header=1&fontgear=2](https://mp.weixin.qq.com/s?search_click_id=4695434153892792770-1675301309289-4496286510&__biz=MzIxMjcxMTA4NQ==&mid=2247484095&idx=1&sn=443efb4f9abbbcdad1e227f67e30952a&chksm=9740a17da037286b03cbf93d11374bbfe82da9a37ce92d8205929f3b0412334d789ec4507dfc&scene=7&key=f1763763d6239e2965797e73cfd101dc7ec423ebe07a0374c000861e1a3382bb76c56633ae6869d655854c025940b7537751bc13072a891aa30b99f364797c91c65156ba4a2d384bc39fb473a0f3ea98817ec60df6ff059d21b6ec80c09e5e51e9e09ad5dcfb1d51eeba49b706afcd2b0823b663dbfc05bdb058072d4d6d7c66&ascene=65&uin=MjUwMTM2MTIwOQ%3D%3D&devicetype=Windows+10+x64&version=6308011a&lang=zh_CN&exportkey=n_ChQIAhIQOT69viY4p6zcwvuD3T%2B77BLgAQIE97dBBAEAAAAAAFZlFjAzP8sAAAAOpnltbLcz9gKNyK89dVj0ib0lLcTrL003mN8I67YgpumkJ4K0OveUdzJIomUjRRA9%2FMKYdCoY6Z%2B%2FvLqRysPvwMUciGteRncLQtqeHC%2BncjouNiFVsRqfM9VABgPtpXjk0SP1Pp8TBXs8owJH%2FIw5SVMYb%2B2xUmvgaFXvHOTFGHcH2Xn0nXvNjDacni6LBqIIPBEUBx7zyFUP4eaAoB3TmD9%2BVDHgZXUojG0QqZG2qiTEpJDTd8%2FZwAiWU6%2Bk1l2fEBRbNq%2BQyMMI&acctmode=0&pass_ticket=%2BtzZ3JOyi79iJQHnWBb%2FrrepYIZkUclt%2B70%2FSG3dT%2BTwPJ3U1HlkWVl1xK56m4qfJgJr8%2FPAkSUjGK%2BgLwdfZw%3D%3D&wx_header=1&fontgear=2)
+[https://mp.weixin.qq.com/s/HH0AXdgdZr1v2Q-Z1ZXDxg](https://mp.weixin.qq.com/s/HH0AXdgdZr1v2Q-Z1ZXDxg)
 
 #### 首发 | 《亚视·小团员》校团委宣传片
 
@@ -103,7 +103,7 @@
 
 上传日期：2018-11-07
 
-[https://mp.weixin.qq.com/s?src=11&timestamp=1675418045&ver=4328&signature=VaiApYeNPUh7a86UP48yx2FRA2CftoXa9XnWSjxL7BEV0dSyvD55tqjIV](https://mp.weixin.qq.com/s?src=11&timestamp=1675418045&ver=4328&signature=VaiApYeNPUh7a86UP48yx2FRA2CftoXa9XnWSjxL7BEV0dSyvD55tqjIV)*Dj9ea7N8V0DJTYI0zyOUc72pzJXm7QfFpy6BlgY4golfzIBrimj3sQlFOFaefpusyYYADF&new=1
+[https://mp.weixin.qq.com/s/ge_VPCJCWCzMsdaZC5c5vw](https://mp.weixin.qq.com/s/ge_VPCJCWCzMsdaZC5c5vw)
 
 #### 捷报〡我校6人再获中国声乐艺术节广东总决赛大奖！
 
@@ -135,7 +135,7 @@
 
 上传日期：2019-08-07
 
-[https://mp.weixin.qq.com/s?src=11&timestamp=1675417953&ver=4328&signature=jYW6zUXmqHmhNSBz43xt1Hp8Fx0cNpoHBvQ7VfiqstknpAzK](https://mp.weixin.qq.com/s?src=11&timestamp=1675417953&ver=4328&signature=jYW6zUXmqHmhNSBz43xt1Hp8Fx0cNpoHBvQ7VfiqstknpAzK)*dJEIYXh-m4wD01pXoTm7VeOOs0Yj3cr39yXpcajzhBSv4GmbPokYHgZr0YQGY9asXgKHe8dNim89Kbc&new=1
+[https://mp.weixin.qq.com/s/94lz1CkN4VJmn9kIDUTO7Q](https://mp.weixin.qq.com/s/94lz1CkN4VJmn9kIDUTO7Q)
 
 #### 难忘恩师情，在这场高水平的明星师生演唱会上，他们落泪不愿分别...
 
@@ -143,7 +143,7 @@
 
 上传日期：2019-06-11
 
-[https://mp.weixin.qq.com/s?src=11&timestamp=1675417953&ver=4328&signature=VaiApYeNPUh7a86UP48yx2FRA2CftoXa9XnWSjxL7BHHreyw0q5eE3I98EfJ7HkoXR8bxu7EvDsA1PuCM1V3Vo](https://mp.weixin.qq.com/s?src=11&timestamp=1675417953&ver=4328&signature=VaiApYeNPUh7a86UP48yx2FRA2CftoXa9XnWSjxL7BHHreyw0q5eE3I98EfJ7HkoXR8bxu7EvDsA1PuCM1V3Vo)*wVyXjPO8UsoVSXeSb7fUPNz4r*WgohxQHGVESebh1&new=1
+[https://mp.weixin.qq.com/s/dLlezMr_mmYGM68F66g_ig](https://mp.weixin.qq.com/s/dLlezMr_mmYGM68F66g_ig)
 
 #### 精彩回顾Ⅰ2019百事校园最强音广东赛区收官之战
 
@@ -151,7 +151,7 @@
 
 上传日期：2019-07-02
 
-[https://mp.weixin.qq.com/s?src=11&timestamp=1675418045&ver=4328&signature=97C0uaKPbQdxsiD3mF8mH5aLt4CvT7EbBl2l0ejH2VPnDjVlPd2mmT1fAHRpX1yIR-C-N1PP0WpRbMu4Ppz6ZX1HRI3JHaXkRm401Br0HYc37yYlwJRv8JPOL8Pu2vwl&new=1](https://mp.weixin.qq.com/s?src=11&timestamp=1675418045&ver=4328&signature=97C0uaKPbQdxsiD3mF8mH5aLt4CvT7EbBl2l0ejH2VPnDjVlPd2mmT1fAHRpX1yIR-C-N1PP0WpRbMu4Ppz6ZX1HRI3JHaXkRm401Br0HYc37yYlwJRv8JPOL8Pu2vwl&new=1)
+[https://mp.weixin.qq.com/s/RCGRJXsAMqXXVN0b2f7A7A](https://mp.weixin.qq.com/s/RCGRJXsAMqXXVN0b2f7A7A)
 
 #### 风声音乐社活动回顾丨现场大爆料
 
@@ -201,7 +201,7 @@
 
 上传日期：2020-03-31
 
-[https://mp.weixin.qq.com/s?src=11&timestamp=1675417932&ver=4328&signature=macbjpkQQfy9oXYDCjjoD-j1Z1fq6LJ9jULitdHrON-Th](https://mp.weixin.qq.com/s?src=11&timestamp=1675417932&ver=4328&signature=macbjpkQQfy9oXYDCjjoD-j1Z1fq6LJ9jULitdHrON-Th)*rYtdy2iRLWY7DfjuNqmC1hfT3ahRaDed4pToZl6p8gnhDISnmwdY2YHDxHiUu2EDPjqKNL2qBkz00E9tJH&new=1
+[https://mp.weixin.qq.com/s/rfhBtzkhihtLIxtsvCF8qQ](https://mp.weixin.qq.com/s/rfhBtzkhihtLIxtsvCF8qQ)
 
 #### 学子风采 | 说说那些杰出校友的故事（二）
 
