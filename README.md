@@ -301,7 +301,7 @@
 
 上传日期：2022-04-08
 
-[https://mp.weixin.qq.com/s?src=11&timestamp=1675417909&ver=4328&signature=g7gtQFlq-xGS9Z-m0vAdx5OulmHrb5SX3N0fkRT6Vx8IStrNhMUuBk3DQvKumMEFG7YkCP0UuGuuSrdpxAqGfkY7K*RO8caePos-mM57vhvBVTXKMJzDnCYBNrH-uXM&new=1](https://mp.weixin.qq.com/s?src=11&timestamp=1675417909&ver=4328&signature=g7gtQFlq-xGS9Z-m0vAdx5OulmHrb5SX3N0fkRT6Vx8IStrNhMUuBk3DQvKumMEFG7YkCP0UuGuuSrdpxAqGfkY7K*RO8caePos-mM57vhvBVTXKMJzDnCYBNrH-uXM&new=1)
+[https://mp.weixin.qq.com/s/qe7zTKlzy6aCve_RJnWxnA](https://mp.weixin.qq.com/s/qe7zTKlzy6aCve_RJnWxnA)
 
 #### 献礼二十大，广东歌舞剧院原创歌曲《光芒》录音版MV首发
 
